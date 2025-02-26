@@ -1,1 +1,1 @@
-Adorable alert! Exclusive designs await – click to unlock limited-edition cuteness now!  <a href="https://thekawaiipark.com/collections/plush-dolls">kawaii capybara plush dolls </a>
+🦝Capybara squad alert! Dive into our kawaii alliance: plushies, Japanese stationery, cozy home decor… Get ¥20 OFF first order – embrace the snuggle vibes!  <a href="https://thekawaiipark.com/collections/plush-dolls">kawaii capybara plush dolls </a>
